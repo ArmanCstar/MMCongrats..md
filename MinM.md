@@ -1,3 +1,3 @@
 # Tutorial
 
-Never Give Up!!
+Never Give Up!
